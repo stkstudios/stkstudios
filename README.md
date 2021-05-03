@@ -1,0 +1,4 @@
+- Hi, I’m @stkstudios
+- im a shitsss
+- I’m looking to collaborate on pretty much nothing
+- c̶o̶n̶t̶a̶c̶t̶ m̶e̶ h̶e̶r̶e̶  dont contact me lm
